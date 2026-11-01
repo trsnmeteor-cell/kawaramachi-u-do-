@@ -1,1 +1,0 @@
-# kawaramachi-u-do-
